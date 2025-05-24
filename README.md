@@ -39,6 +39,15 @@ ManxImpex's team of trained professionals ensures that all systems are not only 
 <h3>Looking Ahead</h3>
 As awareness of fire safety grows and regulatory frameworks become stricter, the demand for reliable fire safety partners continues to rise. ManxImpex is poised to meet this growing demand with innovation, integrity, and a firm commitment to safety.
 Whether you're setting up a new facility or upgrading an existing one, choosing ManxImpex means choosing safety, expertise, and peace of mind. With ManxImpex as your partner, you don’t just comply with fire safety regulations—you create a truly secure environment for all.<br>
-Contact ManxImpex today to learn how their fire safety solutions can protect what matters most.
-Website: https://manximpex.com/
-Call us at: +91- 7428115550, +91- 7065192900
+<h6>Contact ManxImpex today to learn how their fire safety solutions can protect what matters most.</h6>
+<li>Website: https://manximpex.com/</li>
+<li>Call us at: +91- 7428115550, +91- 7065192900</li>
+<h4>Follow us on</h4>
+<li>Instagram: https://instagram.com/manximpex/</li>
+<li>Facebook: https://facebook.com/manximpex/</li>
+<h3>Related Blog:</h3>
+<ul><li><a href="https://manximpex.com/fire-safety-tips-for-homeowners/">Top 10 Fire safety tips for homeowners</a></li>
+<li><a href="https://manximpex.com/common-fire-extinguisher-myths-debunked/">Common Fire Extinguisher Myths: Debunking Misconceptions about Fire Safety</a></li>
+<li><a href="https://manximpex.com/hose-clamps-india/"> Hose Clamp in India: CS HOSE CLAMPS Leading the Way in Quality and Innovation</a></li>
+<li><a href="https://manximpex.com/fire-evacuation-plan/">How to Create an Effective Fire Evacuation Plan for Your Business</a></li>
+<li><a href="https://manximpex.com/benefits-of-installing-sprinkler-system/">The Benefits of Installing Sprinkler Systems in Residential Properties</li></ul>
