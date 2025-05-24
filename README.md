@@ -29,9 +29,9 @@ ManxImpex offers a comprehensive inventory of fire safety products catering to d
 <li>System Design and Installation</li>
 <li>Annual Maintenance Contracts (AMCs)</li>
 <li>Training Programs on Fire Safety and Equipment Use</li>
-ManxImpex's team of trained professionals ensures that all systems are not only installed properly but also maintained to function optimally when needed the most. Their commitment to ongoing support ensures peace of mind for clients long after the sale.
-Why Choose ManxImpex?
-1. Quality Assurance: With a strong focus on quality control and regulatory compliance, ManxImpex guarantees top-notch products that adhere to the highest safety standards.
+ManxImpex's team of trained professionals ensures that all systems are not only installed properly but also maintained to function optimally when needed the most. Their commitment to ongoing support ensures peace of mind for clients long after the sale.,br>
+<h3>Why Choose ManxImpex?</h3>
+<li>1. Quality Assurance: With a strong focus on quality control and regulatory compliance, ManxImpex guarantees top-notch products that adhere to the highest safety standards.</li>
 2. Customer-Centric Approach: Understanding the unique safety needs of each client is at the heart of their service model.
 3. Competitive Pricing: By maintaining close ties with manufacturers and streamlining supply chain processes, ManxImpex offers cost-effective solutions without compromising on quality.
 4. Timely Delivery: Efficient logistics ensure that clients receive their products on schedule, even for urgent installations or emergency replacements.
