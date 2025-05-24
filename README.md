@@ -32,13 +32,13 @@ ManxImpex offers a comprehensive inventory of fire safety products catering to d
 ManxImpex's team of trained professionals ensures that all systems are not only installed properly but also maintained to function optimally when needed the most. Their commitment to ongoing support ensures peace of mind for clients long after the sale.,br>
 <h3>Why Choose ManxImpex?</h3>
 <li>1. Quality Assurance: With a strong focus on quality control and regulatory compliance, ManxImpex guarantees top-notch products that adhere to the highest safety standards.</li>
-2. Customer-Centric Approach: Understanding the unique safety needs of each client is at the heart of their service model.
-3. Competitive Pricing: By maintaining close ties with manufacturers and streamlining supply chain processes, ManxImpex offers cost-effective solutions without compromising on quality.
-4. Timely Delivery: Efficient logistics ensure that clients receive their products on schedule, even for urgent installations or emergency replacements.
-5. Expert Guidance: The company’s knowledgeable staff provides expert recommendations to ensure clients choose the right equipment for their specific fire risks.
-Looking Ahead
+<li>2. Customer-Centric Approach: Understanding the unique safety needs of each client is at the heart of their service model.</li>
+<li>3. Competitive Pricing: By maintaining close ties with manufacturers and streamlining supply chain processes, ManxImpex offers cost-effective solutions without compromising on quality.</li>
+<li>4. Timely Delivery: Efficient logistics ensure that clients receive their products on schedule, even for urgent installations or emergency replacements.</li>
+<li>5. Expert Guidance: The company’s knowledgeable staff provides expert recommendations to ensure clients choose the right equipment for their specific fire risks.</li>
+<h3>Looking Ahead</h3>
 As awareness of fire safety grows and regulatory frameworks become stricter, the demand for reliable fire safety partners continues to rise. ManxImpex is poised to meet this growing demand with innovation, integrity, and a firm commitment to safety.
-Whether you're setting up a new facility or upgrading an existing one, choosing ManxImpex means choosing safety, expertise, and peace of mind. With ManxImpex as your partner, you don’t just comply with fire safety regulations—you create a truly secure environment for all.
+Whether you're setting up a new facility or upgrading an existing one, choosing ManxImpex means choosing safety, expertise, and peace of mind. With ManxImpex as your partner, you don’t just comply with fire safety regulations—you create a truly secure environment for all.<br>
 Contact ManxImpex today to learn how their fire safety solutions can protect what matters most.
 Website: https://manximpex.com/
 Call us at: +91- 7428115550, +91- 7065192900
